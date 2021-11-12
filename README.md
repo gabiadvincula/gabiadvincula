@@ -1,4 +1,4 @@
-## Olá! Eu sou a Gabi Advincula
+## Oi! Eu sou a Gabi Advincula
 - 😄 Pronouns: ela/dela
 
 <div align="center">
